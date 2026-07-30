@@ -1,13 +1,25 @@
 # Extended Pony Town bio-
 
+<img width="498" height="412" alt="VOwe1wP7pY8djAaQT1" src="https://github.com/user-attachments/assets/bca32e8e-da01-44ee-a91b-87ac95ab7deb" />
 
-Hi all I'm Stoop!! I am 21 years old 
+~ Hi all I'm Stoop!! I am 21 years old 
 
-I am Tenna,, Tenna is me,,, maybe fictionkin
+~ I am Tenna,, Tenna is me,,, maybe fictionkin
 
-I have extremely bad anxiety and may come off as dry or rude. I NEVER MEAN TO BE RUDE so please don't take anything to heart
+~ Working on being more social,, Looking for German-speaking friends who don't mine my horrible German,, trying not to lose my ability to speak it ;-;
 
-Currently hyperfixated on DELTARUNE and probably PonyTown
+~ I have extremely bad anxiety and may come off as dry or rude. I NEVER MEAN TO BE RUDE so please don't take anything to heart
 
-#1 Spamtenna shipper probably,,, I LOOOOVVEEEE Spamtenna
+~ Currently hyperfixated on DELTARUNE and probably PonyTown
 
+~ #1 Spamtenna shipper probably,,, I LOOOOVVEEEE Spamtenna
+
+~ Multifandom enjoyer,,, don't be afraid to ask about stuff,,, I'm open to listening on fandoms I'm unfamiliar with!!
+
+~ I'm a college art student,, digital animation major,, Professional artis,, who never posts...
+
+Pony Town relating things...
+~ Normally I'm in the Deltarune 'area' as Tenna or Spamton, or I'm in other fandom spaces,,,
+~ I don't mind people sitting with me as long as you aren't being weird/gross
+~ I don't do any serious roleplay AT ALL please don't ask unless its a joke 
+~ DO NOT COPY my skins
