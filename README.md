@@ -18,8 +18,13 @@
 
 ~ I'm a college art student,, digital animation major,, Professional artis,, who never posts...
 
+
 Pony Town relating things...
+
 ~ Normally I'm in the Deltarune 'area' as Tenna or Spamton, or I'm in other fandom spaces,,,
+
 ~ I don't mind people sitting with me as long as you aren't being weird/gross
+
 ~ I don't do any serious roleplay AT ALL please don't ask unless its a joke 
+
 ~ DO NOT COPY my skins
