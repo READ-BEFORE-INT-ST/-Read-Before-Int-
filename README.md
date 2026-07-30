@@ -28,3 +28,13 @@ Pony Town relating things...
 ~ I don't do any serious roleplay AT ALL please don't ask unless its a joke 
 
 ~ DO NOT COPY my skins
+
+DNI
+
+TRASH / Anti-LGBTQ+
+
+Minors under 16
+
+Hazbin/Helluva fans,, ESPECIALLY Valentino fans.
+
+If I tell you to leave me be,,, I WILL hide you if i have to :)
