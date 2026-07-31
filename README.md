@@ -4,6 +4,8 @@
 
 ~ Hi all I'm Stoop!! I am 21 years old 
 
+~ My discord is bruhcherrigud, please ask to friend me first!!
+
 ~ I am Tenna,, Tenna is me,,, maybe fictionkin
 
 ~ Working on being more social,, Looking for German-speaking friends who don't mine my horrible German,, trying not to lose my ability to speak it ;-;
@@ -27,9 +29,9 @@ Pony Town relating things...
 
 ~ I don't do any serious roleplay AT ALL please don't ask unless its a joke 
 
-~ DO NOT COPY my skins
+~ DO NOT COPY my skins please :,)
 
-DNI
+DNI if...
 
 TRASH / Anti-LGBTQ+
 
