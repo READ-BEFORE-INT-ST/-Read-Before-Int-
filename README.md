@@ -6,9 +6,9 @@
 
 ~ My discord is bruhcherrigud, please ask to friend me first!!
 
-~ I am Tenna,, Tenna is me,,, maybe fictionkin
+~ I am Tenna,, Tenna is me,,,  fictionkin
 
-~ Working on being more social,, Looking for German-speaking friends who don't mine my horrible German,, trying not to lose my ability to speak it ;-;
+~ Working on being more social,, Looking for German-speaking friends who don't mind my horrible German,, trying not to lose my ability to speak it ;-;
 
 ~ I have extremely bad anxiety and may come off as dry or rude. I NEVER MEAN TO BE RUDE so please don't take anything to heart
 
